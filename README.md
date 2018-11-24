@@ -1,2 +1,2 @@
 # dig
-pornhub.com
+no any way
